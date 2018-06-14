@@ -7,6 +7,13 @@
 * [Sankara](http://www.sankara.com): rooftop pool
 
 ## Where to eat:
-### Westlands
-* [Pharley's](https://www.pharleys.com)
-* [Habesha](): Ethiopian restaurant in Kilimani neighborhood
+### Westlands/Kitisuru
+* [Pharley's](https://www.pharleys.com) - ritzy-ish spot to bring laptop and work. Also has gift shop. 
+* [Labenese food at Hob House](https://www.facebook.com/Hob-House-1068027543222649/) - Haven't been yet but comes recommended by a friend. 
+
+### Kilimani/Upper Hill
+* [Habesha](https://www.google.com/maps/place/Habesha+Restaurant/@-1.2910931,36.7742004,14.39z/data=!4m5!3m4!1s0x182f1a0a2d290b21:0x3d7e68cdae453778!8m2!3d-1.292383!4d36.779284?hl=sw) - Ethiopian restaurant in Kilimani neighborhood. Best with a group, but not to miss!
+
+
+## Things to do:
+TBD...
