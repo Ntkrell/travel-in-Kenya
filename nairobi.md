@@ -45,10 +45,11 @@
 * [Nairobi Railway Museum](https://www.google.com/maps/place/Nairobi+Railway+Museum/@-1.2935197,36.8223269,15z/data=!4m5!3m4!1s0x0:0x249a600a318017bd!8m2!3d-1.2935197!4d36.8223269) - a mix of art and history.
 * [The Giraffe Manor](https://www.thesafaricollection.com/properties/giraffe-manor/) - if you stay the night you can eat with giraffes poking their heads through the windows. 
 * [Bomas of Kenya](https://www.kempinski.com/en/nairobi/hotel-villa-rosa/local-information/bomas-of-kenya/?utm_source=google&utm_medium=cpc&utm_campaign=DSA-Villa%20Rosa&utm_content=DYNAMIC%20SEARCH%20ADS&source=S46992213&gclid=CjwKCAjwyMfZBRAXEiwA-R3gM0HLFuMakXZAsLkC9pqiOA7jnWKObhs8o4LbBJcGQT-WD7q9fdcX_RoCpHUQAvD_BwE) - traditional dance shows at the Kempinski.
-* [Sheldrick Wildlife Trust]
+* [Sheldrick Wildlife Trust] - bottle-feed baby elephants
 * [Nairobi Flea Market](https://www.instagram.com/thenairobifleamarket/?hl=en) - at the Alchemist every Sunday.
 * [McMillan Memorial Library](https://www.google.com/maps/place/Mc+Millan+Memorial+Library/@-1.2836055,36.8207331,14.82z/data=!4m5!3m4!1s0x0:0x65e1783dee7cff92!8m2!3d-1.2835884!4d36.8212178)
 * Maasai Market
+* [National Museum] - 8:30am - 5pm, 1200 Ksh. Worth seeing
 
 ### Nairobi National Park
 * [Kitengela Glass](https://www.kitengelaglassart.com) - next to Nairobi national park. A hidden gem.
@@ -59,3 +60,21 @@
 * Ngong Hills - place to go hiking
 * Nairobi Arboretum
 * Oloolua Nature Trail
+
+### Outside the city
+* [Kiambethu Tea Farm](kiambethufarm.co.ke) - tour plus lunch is $26. If coming in own vehicle, print detailed directions from website. Book well in advance. 
+* [Maasai Ostrich Resort](maasaiostrich.com) - you can ride an ostrich here
+
+## 3-day Nairobi itinerary:
+1. Giraffe center - 1000 ksh per person
+2. David Sheldrick Wildlife Trust
+3. Utamaduni
+4. Dinner at Carnivore
+
+1. National Museum - entrance fee is $50 USD
+2. View the city from Kenyatta Conference Center
+3. Railway Museum
+4. Dinner at Tamarind Restaurant
+
+1. Nairobi National Park
+2. Karen Blixen Coffee Harden

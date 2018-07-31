@@ -7,6 +7,7 @@ aka Watamu
 * [Hemingways](https://www.hemingways-collection.com) - 1600 ksh to use the pool for non-guests. 
 * [Milda eco camp](mildaecocamp.com) - "rickety but atmospheric" huts are 1400 ksh per person
 * [Scorpio Villas](scorpio-villas.com) - "pretty and a great value". Walking distance of good restaurants
+* [Wesa House](https://www.kilifiwesabeachhouse.com)
 
 ## Where to eat:
 * [Ocean Sports Restaurant](https://www.tripadvisor.com/Restaurant_Review-g661279-d7316193-Reviews-The_Ocean_Sports_Restaurant-Watamu_Coast_Province.html)
