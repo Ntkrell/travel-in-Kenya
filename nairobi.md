@@ -29,11 +29,13 @@
 * [La Salumeria](http://www.lasalumeria.co.ke) - for Italian food. Eggplant parmesan is recommended.
 * [Mama Ashanti](http://mamaashanti.co.ke/home) - West African food. 
 * [Arbor](https://www.google.com/maps/place/Arbor+Place/@-1.2861836,36.7547898,13.67z/data=!4m5!3m4!1s0x0:0x123188db195cf7e1!8m2!3d-1.287708!4d36.7611336)
+* [Silk Noodles]
 
 ### Karen
 * [Haru](https://www.google.com/maps/place/Haru+Restaurant/@-1.3276308,36.7172774,14.94z/data=!4m5!3m4!1s0x0:0xbb7b635519b89f0e!8m2!3d-1.3274513!4d36.7174888) - Japanese food in Karen.
 * [Tin Roof Cafe](https://www.tinroof.cafe) - fresh spot with vegan options. 
 * [Talisman](http://www.thetalismanrestaurant.com)
+* [Boho eatery]
 
 ### Kikuyu
 * [Crave Kitchen](https://www.google.com/maps/place/Crave+Kitchen/@-1.3484623,36.6005215,11.32z/data=!4m12!1m6!3m5!1s0x182f1f04bf5f8fdb:0x74ec1360d82e229b!2sCrave+Kitchen!8m2!3d-1.2463769!4d36.6621652!3m4!1s0x182f1f04bf5f8fdb:0x74ec1360d82e229b!8m2!3d-1.2463769!4d36.6621652) - delicious Kenyan staples.
@@ -78,3 +80,7 @@
 
 1. Nairobi National Park
 2. Karen Blixen Coffee Harden
+
+## Other things that could do
+* Lunch at [Brown's Farm](http://www.brownscheese.com/?visit-the-farm,22)
+* Learn to cook Kenyan food. Two experiences [1](https://www.airbnb.com/experiences/237642?location=Nairobi%2C%20Kenya&source=p2&currentTab=experience_tab&searchId=5ffcdd16-aff6-4f6c-9b38-5c877a953cc4&federatedSearchId=6c658978-a73b-4bd8-b027-0b7000b3d670&sectionId=ec4839a1-12e3-40de-901b-4ee596c40041), [2](https://www.airbnb.com/experiences/247755?location=Nairobi%2C%20Kenya&source=p2&currentTab=experience_tab&searchId=5ffcdd16-aff6-4f6c-9b38-5c877a953cc4&federatedSearchId=6c658978-a73b-4bd8-b027-0b7000b3d670&sectionId=ec4839a1-12e3-40de-901b-4ee596c40041)
