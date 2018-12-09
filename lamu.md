@@ -1,3 +1,5 @@
+*Note*, Lamau is on the state department travel warning list. I did not go to Lamu but it seems amazing.
+
 ## How to get there:
 * [Fly 540](https://www.fly540.com/lamu.php)
 * [Airkenya](airkenya.com)
